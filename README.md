@@ -1,1 +1,1 @@
-# homemade reciters
+# homemade reciters for muslimist.com
